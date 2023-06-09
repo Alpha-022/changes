@@ -38,3 +38,21 @@ Document has issues
 -----------END-----------
 
 ----
+
+![image](https://github.com/Alpha-022/changes/assets/104521086/24e18d2d-f537-41bc-9d59-b8213f3022f8)
+![image](https://github.com/Alpha-022/changes/assets/104521086/6d5c91e3-6e90-42f5-a484-0c9c60176049)
+
+![image](https://github.com/Alpha-022/changes/assets/104521086/52fc0427-3de2-43b3-80bc-f097c874f59c)
+![image](https://github.com/Alpha-022/changes/assets/104521086/562a3960-b209-4ff0-9f90-9b87715e517b)
+![image](https://github.com/Alpha-022/changes/assets/104521086/4897d5ad-11f6-43b2-8f58-91dba455dec4)
+![image](https://github.com/Alpha-022/changes/assets/104521086/a87ffc9c-7854-4f75-82a5-a14f6a2fd7c2)
+![image](https://github.com/Alpha-022/changes/assets/104521086/764f489f-34d1-4637-811f-a9c98ee18cfc)
+![image](https://github.com/Alpha-022/changes/assets/104521086/d127278f-27cb-461f-be52-f216e956b53b)
+![image](https://github.com/Alpha-022/changes/assets/104521086/9cb728ff-d0d3-4cc6-ad12-297d449b2f37)
+![image](https://github.com/Alpha-022/changes/assets/104521086/b748bc58-0bdf-432f-ac0b-1bd7c544f69b)
+![image](https://github.com/Alpha-022/changes/assets/104521086/c3d57619-7598-4fe2-99df-a3cff2690a9b)
+![image](https://github.com/Alpha-022/changes/assets/104521086/5fb15eeb-24d0-4db8-ab07-189c22804e62)
+![image](https://github.com/Alpha-022/changes/assets/104521086/7a28d84d-db80-48d3-b705-8219c8ec1998)
+![image](https://github.com/Alpha-022/changes/assets/104521086/41b5bf8a-236d-4635-ae9f-2c511795eb16)
+![image](https://github.com/Alpha-022/changes/assets/104521086/1f1edd9f-e920-4a05-851f-656c105f01d8)
+![image](https://github.com/Alpha-022/changes/assets/104521086/e4d815a0-31f7-45b1-bd41-f2c48cea704d)
